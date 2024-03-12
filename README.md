@@ -4,6 +4,6 @@ Meu nome é Julia Gabrieli, sou estudando do 3 ano no N.E.M. e estou no GitHub e
 
 - 📫 How to reach me: julia.gabrielizevericoskida.fonseca@escola.pr.gov.br
 - 🔭 I’m currently working on: nothing
-- ⚡ Fun fact: I like coffe
+- ⚡ Fun fact: Eu gosto de café
 
   :)
